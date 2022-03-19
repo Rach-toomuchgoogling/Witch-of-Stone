@@ -8,13 +8,13 @@ This powerful healing ritual was different. If done correctly, it would consume 
 
 She ran one finger lightly down the yellowed page. The spidery writing was hard to follow. A large portion of the page was dedicated to warnings- reiterations that the ritual was not to be undertaken unless all other choices had been exhausted. Miranda looked again at her mother’s pale face. There were no other choices.
 
-Liberal amounts of rosemary- fresh
+<i>Liberal amounts of rosemary- fresh
 
 3 beeswax candles
 
 A silver bowl of purified water
 
-Perform the ritual outdoors, facing the cliffs
+Perform the ritual outdoors, facing the cliffs</i>
 
 There was rosemary in the kitchen, she was sure. And a candle of some sort in the drawer. Surely her mother’s glass of water would suffice, rather than a silver bowl? The lapidary was old, and no doubt old fashioned. Modern mages knew that the quality of the stone was the only thing that really mattered!
 Miranda fingered the velvet pouch and then, in a sudden movement, tipped the sparkling stone into her right hand. Funny– it had felt warm in the store, and for the walk home. Now it was cool on her palm. She closed her eyes, and reached inwards, feeling the centre of the stone. She yanked her magic back, burnt. If the stone had felt cool on her palm, then it was just a warning for the ice waiting within. 
